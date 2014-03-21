@@ -5,5 +5,5 @@ During the battle, Rebel spies managed to steal secret plans to the Empire's
 ultimate weapon, the Death Star, an armored space station with enough power
 to destroy an entire planet.
 Pursued by the Empire's sinister agents, Princess Leia races home aboard her
-starship, custodian of the stolen that can save her slaves and
+starship, custodian of the stolen that can save her and
 freedom to the vast galaxy...
